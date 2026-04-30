@@ -1,1 +1,1 @@
-# An-liseda-Din-mica-da-infla-o-global-P-s-COVID-2020-2024-
+# Anlise da Dinmica da inflação global Pós-COVID-2020-2024
